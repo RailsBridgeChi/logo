@@ -1,1 +1,1 @@
-Here are our logo files.  Logo created by Caroline Artz.
+Our logo was created by the fabulous [Caroline Artz](http://www.carolineartz.me/).
